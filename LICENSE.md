@@ -1,4 +1,4 @@
-#  
+#  Experience 3008 like never before with elite 3008 Script, the #1 Script. Includes auto-farm and auto-upgrade for unbeatable performance.
 
 
 
